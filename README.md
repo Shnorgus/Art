@@ -15,3 +15,6 @@ I wanted to make a website — I couldn't, so I'm doing it here.
 
 
 `Click the three dots to learn more about each drawing`
+
+
+Leave [a Review!](https://tally.so/r/NqlALN)
