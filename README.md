@@ -14,4 +14,4 @@ I wanted to make a website — I couldn't, so I'm doing it here.
 
 
 
-`Click the three dots to learn more about each drawing` and Leave a [Review!](https://tally.so/r/NqlALN)
+`Click the three dots to learn more about each drawing` | and Leave a [Review!](https://tally.so/r/NqlALN)
